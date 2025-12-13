@@ -73,7 +73,7 @@ Example:
 
 - **Email:** saipediredla2@gmail.com  
 - **LinkedIn:** https://www.linkedin.com/in/sai-pediredla-2b8067370  
-- **GitHub:** https://github.com/Tharun-Pindi  
+- **GitHub:** https://github.com/saipediredla45
 
 ---
 
